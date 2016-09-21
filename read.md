@@ -1,5 +1,5 @@
 what is your favorite food other than coffee?
-Japanese Food
+Italian Food :) & popcorn (can eat it endlessly)
 
 Who was your favorite teacher?
-Mr. K in highschool chemistry.
+Mrs. Sanftner (my high school chemistry teacher)
